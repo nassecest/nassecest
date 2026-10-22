@@ -17,7 +17,8 @@ ${{\color{#ffffff}{\textsf{ chiyo / rei }}}}$ ![ALT](https://files.catbox.moe/ws
 
 <div align="center">
 
-![Alt](https://files.catbox.moe/6n4zjh.png)   
+![Alt](https://cdn.phototourl.com/member/2026-10-22-15d1acf5-fc04-4517-8c49-187fa617eb57.png)   
+
 <details>
   <summary>
      ${{\color{#fffff}{\texttt{　doki4 }}}}$
