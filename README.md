@@ -56,6 +56,6 @@ and for some certain things I didn't mention but I find gross, dw I block freely
 
 <a href="https://5ojo.atabook.org/?page=1">新book </a>　　
 ![ALT](https://cdn.phototourl.com/member/2026-10-22-32daea89-78e6-42c8-90fc-2df3a32d6aa8.gif) 
-      ⠀⠀⠀<a href="https://en.pronouns.page/@5ojo">prnpage </a>
+      ⠀⠀⠀<a href="https://en.pronouns.page/@reibun">prnpage </a>
 
 <a href="https://guns.lol/5ojo">gunslol
