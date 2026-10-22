@@ -7,7 +7,7 @@ ${{\color{#ffffff}{\textsf{DO NOT COPY MY PONIES }}}}$
 
 <div align="center">
   
-${{\color{#ffffff}{\textsf{ chiyo / rei }}}}$ ![ALT](https://files.catbox.moe/ws3o9v.gif) 
+${{\color{#ffffff}{\textsf{ chiyo / rei }}}}$ ![ALT](https://cdn.phototourl.com/member/2026-10-22-e1ec9e86-fdd9-431b-ba48-612dcf4a1708.gif) 
 <br>
 <br>
 
@@ -57,7 +57,7 @@ and for some certain things I didn't mention but I find gross, dw I block freely
 
 
 <a href="https://5ojo.atabook.org/?page=1">新book </a>　　
-${{\color{#ffffff}{\textsf{ 　　𐂯 }}}}$
+![ALT](https://cdn.phototourl.com/member/2026-10-22-32daea89-78e6-42c8-90fc-2df3a32d6aa8.gif) 
       ⠀⠀⠀<a href="https://en.pronouns.page/@5ojo">prnpage </a>
 
 <a href="https://guns.lol/5ojo">gunslol
