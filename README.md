@@ -1,27 +1,20 @@
 <div align="center">
   
-${{\color{#ffffff}{\textsf{DO NOT COPY MY PONIES }}}}$
+${{\color{#ffbfd6}{\textsf{DO NOT COPY MY PONIES }}}}$
 <br>
 <br> 
 <br>
 
 <div align="center">
   
-${{\color{#ffffff}{\textsf{ chiyo / rei }}}}$ ![ALT](https://cdn.phototourl.com/member/2026-10-22-e1ec9e86-fdd9-431b-ba48-612dcf4a1708.gif) 
+${{\color{#ffbfd6}{\textsf{ chiyo / rei }}}}$ ![ALT](https://cdn.phototourl.com/member/2026-10-22-e1ec9e86-fdd9-431b-ba48-612dcf4a1708.gif) 
 <br>
-<br>
-
-<div id="header" align="center">
-  
-![](https://komarev.com/ghpvc/?username=princessatoru&label=𑄝&color=#ffbfd6) 
-
-<div align="center">
 
 ![Alt](https://cdn.phototourl.com/member/2026-10-22-15d1acf5-fc04-4517-8c49-187fa617eb57.png)   
 
 <details>
   <summary>
-     ${{\color{#fffff}{\texttt{　doki4 }}}}$
+     ${{\color{#ffbfd6}{\texttt{　doki4 }}}}$
   </summary>
 
 
@@ -38,7 +31,7 @@ ${{\color{#ffffff}{\textsf{ chiyo / rei }}}}$ ![ALT](https://cdn.phototourl.com/
 
 <details>
   <summary>
-     ${{\color{#fffff}{\texttt{　dni }}}}$
+     ${{\color{#ffbfd6}{\texttt{　dni }}}}$
   </summary>
 
 <br>
