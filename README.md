@@ -13,7 +13,7 @@ ${{\color{#ffffff}{\textsf{ chiyo / rei }}}}$ ![ALT](https://cdn.phototourl.com/
 
 <div id="header" align="center">
   
-![](https://komarev.com/ghpvc/?username=princessatoru&label=𑄝&style=plastic&color=#ffbfd6) 
+![](https://komarev.com/ghpvc/?username=princessatoru&label=𑄝&color=#ffbfd6) 
 
 <div align="center">
 
