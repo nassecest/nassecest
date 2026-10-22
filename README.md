@@ -10,7 +10,7 @@ ${{\color{#ffbfd6}{\textsf{DO NOT COPY MY PONIES }}}}$
 ${{\color{#ffbfd6}{\textsf{ chiyo / rei }}}}$ ![ALT](https://cdn.phototourl.com/member/2026-10-22-e1ec9e86-fdd9-431b-ba48-612dcf4a1708.gif) 
 <br>
 
-![Alt](https://cdn.phototourl.com/member/2026-10-22-15d1acf5-fc04-4517-8c49-187fa617eb57.png)   
+![Alt](https://cdn.phototourl.com/member/2026-10-22-1b93f5bd-0a69-4cbb-a200-04cd21897150.png)   
 
 <details>
   <summary>
